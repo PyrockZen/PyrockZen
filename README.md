@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Roblox.
 - 📫 How to reach me: X, Youtube, Roblox and Gravatar.
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: TMNT 2012 is the goated show.
+- ⚡ Fun fact: Key and Peele are the goats of comedy.
 
 <!---
 PyrockZen/PyrockZen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
